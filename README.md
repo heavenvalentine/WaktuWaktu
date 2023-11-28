@@ -1,5 +1,11 @@
-![Image 1](https://drive.google.com/file/d/1def87rs7_f0HVk3_2F6Igl2SgU6XWOwm/view?usp=drive_link)
-![Image 2](Direct_Image_URL_2)
+![Screenshot 2023-11-26 132958](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/bbcad29e-49fc-4802-8742-7cf6946ebfa7)
+![Screenshot 2023-11-26 132938](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/a9531bfa-7bac-474d-9e80-af88f8665f6a)
+![Screenshot 2023-11-26 132923](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/14848180-a5b2-455d-857b-f24dc339a9c0)
+![Screenshot 2023-11-26 132913](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/9aba65d2-2249-4a54-a98b-d663f0c53507)
+![Screenshot 2023-11-26 132559](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/2ca0fc6f-54bb-4bf4-9cdb-3d55fa2bf076)
+![Screenshot 2023-11-26 132548](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/fd075727-32a0-417e-a4cc-5341e9566338)
+![Screenshot 2023-11-26 132532](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/af9887d9-948e-462d-a4bc-3f0045b04db6)
+![Screenshot 2023-11-26 132525](https://github.com/heavenvalentine/WaktuWaktu/assets/121389422/199cf9bf-4b9f-4c9a-9b74-b79727fc85d3)
 
 
 
